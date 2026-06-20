@@ -1,1 +1,1 @@
-# rollingstone-cover-story-addison-rae
+https://shoneal.github.io/rollingstone-cover-story-addison-rae/
